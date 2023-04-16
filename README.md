@@ -12,4 +12,4 @@ Here's a quick summary about me:
 
 💼 Job interests: Software Engineer, Front Engineer, or UI Engineer (Intern).
 
-📫 You can contact me by emailing tyanaeffa@yahoo.com.
+📫 You can contact me by emailing tyanaeffa@gmail.com.
